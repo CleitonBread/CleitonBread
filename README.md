@@ -14,7 +14,7 @@
  
 <br>
  
-### Pra conteúdo sobre programação me segue a gente nas redes abaixo!
+### Quer me conhecer mais? Me segue nas redes então!! 🎮
  
 <div> 
   <a href="https://www.instagram.com/cleiton_rbread?igsh=MTBmdXMxeHplaGw5OQ==" target="_blank"><img src="https://img.shields.io/badge/-Instagram-%23E4405F?style=for-the-badge&logo=instagram&logoColor=white" target="_blank"></a>
